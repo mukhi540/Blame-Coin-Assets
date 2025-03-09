@@ -1,0 +1,1 @@
+Blame Coin Logo
